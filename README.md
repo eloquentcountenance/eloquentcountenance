@@ -1,5 +1,5 @@
 ![17544947131825342034253001977727](https://github.com/user-attachments/assets/519bab8f-747a-4b71-88e3-f91b5322bcb0)
-## * ... it actually took me an hour trying to figure out how to upload this lil guy to github. frowns . . .
+## jamie / jojo ( jordin ) yipparoni !!
 —— preference is she / they. thank you !! : D i don't mind if you use "he" whenever im cosplaying a male character, i get it. just don't use it all the time if im not : P
 <img width="720" height="720" alt="17544960144033295457012166217353" src="https://github.com/user-attachments/assets/b953ac2b-49de-4af9-980b-ce7b6f86871a" />
 
