@@ -1,5 +1,7 @@
 ![17544947131825342034253001977727](https://github.com/user-attachments/assets/519bab8f-747a-4b71-88e3-f91b5322bcb0)
-## —————————— ... it actually took me an hour trying to figure out how to upload this lil guy to github. frowns . . .
+## * ... it actually took me an hour trying to figure out how to upload this lil guy to github. frowns . . .
+—— preference is she / they. thank you !! : D i don't mind if you use "he" whenever im cosplaying a male character, i get it. just don't use it all the time if im not : P
+
 <!--
 **eloquentcountenance/eloquentcountenance** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
