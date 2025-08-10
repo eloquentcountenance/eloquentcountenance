@@ -1,7 +1,6 @@
 ![17544947131825342034253001977727](https://github.com/user-attachments/assets/519bab8f-747a-4b71-88e3-f91b5322bcb0)
-## jamie / jojo ( jordin ) yipparoni !!
-—— preference is she / they. thank you !! : D i don't mind if you use "he" whenever im cosplaying a male character, i get it. just don't use it all the time if im not : P
-<img width="720" height="720" alt="17544960144033295457012166217353" src="https://github.com/user-attachments/assets/b953ac2b-49de-4af9-980b-ce7b6f86871a" />
+<img width="720" height="406" alt="17548590113607109411077544688597" src="https://github.com/user-attachments/assets/3358f549-074f-4fa4-9b01-1012bbe9bad6" />
+
 
 <!--
 **eloquentcountenance/eloquentcountenance** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
