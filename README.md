@@ -16,4 +16,4 @@
 
 
 
-semaru meramera, dochira mo haisha..??? semaru memera, kesenai FIRE!!!!!!!!!!!!
+semaru meramera, dochira mo haisha..??? semaru memera, kesenai FIRE!!!!!!!!!!!! yes im adding more stuff and wasting my tim on those rentry looking things ://so i will Barely be here
