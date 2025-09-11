@@ -26,4 +26,4 @@
 
 
 semaru meramera, dochira mo haisha..??? semaru memera, kesenai FIRE!!!!!!!!!!!! yes im adding more stuff and wasting my tim on those rentry looking things ://so i will Barely be here
- um bai docks imleavinfrolike 2 days to focus on school because of this Debate assignment dat is SOO longggg>:/ ok i finished one assignment..one more to go:)
+ um bai docks imleavinfrolike 2 days to focus on school because of this Debate assignment dat is SOO longggg>:/ ok i finished one assignment..one more to go:) if iim not in gtcs or at docks or at bakery or at date everything area im in a mafia or im not on pony town...yes i said i hate mafias but Um i like paragraphing
