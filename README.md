@@ -26,3 +26,4 @@
 
 
 semaru meramera, dochira mo haisha..??? semaru memera, kesenai FIRE!!!!!!!!!!!! yes im adding more stuff and wasting my tim on those rentry looking things ://so i will Barely be here
+ um bai docks imleavinfrolike 2 days to focus on school because of this Debate assignment dat is SOO longggg>:/
