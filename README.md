@@ -23,8 +23,4 @@ when im done all of this is going in my @macpilled github bc this is goingt o be
 
 
 
-           semaru meramera, dochira mo haisha..??? semaru memera, kesenai FIRE!!!!!!!!!!!! yes im adding more stuff and wasting my tim on those rentry looking things ://so i will Barely be here imleavinfrolike 2 days to focus on school because of this Debate assignment dat is SOO longggg>:/ ok i finished one assignment..one more to go:) if iim not in gtcs or at docks or at bakery or at date everything area im in a mafia or im not on pony town...yes i said i hate mafias but Um i like paragraphing
-
-          ..Sighs im Barely going to be joining gtcs anymore the people there r honestly so rude and disgusting dude im Not kidding or exaggerating im actually about to quit this game too holy shit
-
-o ya did i say c + h please do that. please. in pt i REAALLY like being close 2 ppl or just being hidden behind another pony, its strangely comforting. ii mostly prefer my pony being hidden if im skips or if im just behind u : u will Never catch me in front as skips unless im hardcore afking or i feel like over shadowing u (do u get it..its supposed to be a joke..with a punchline...and the punchline is...) : ii dont care what ur pony looks like just cuddle me plz!! if ur scared then im scared sorry i cant approach people for shit on here
+           umm ya nvm i quit ponytown ok bai guys not coming back...need to finish my vns
