@@ -23,4 +23,4 @@ when im done all of this is going in my @macpilled github bc this is goingt o be
 
 
 
-           umm ya nvm i quit ponytown ok bai guys not coming back...need to finish my vns
+umm ya nvm i quit ponytown ok bai guys not coming back...need to finish my vns
