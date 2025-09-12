@@ -13,7 +13,8 @@
 
 
 
-<img width="99" height="56" alt="17575076441997543281770696612481" src="https://github.com/user-attachments/assets/07f0971b-692a-41ba-ad47-65fa1937b385" /><img width="99" height="56" alt="17575076723835904084378366257231" src="https://github.com/user-attachments/assets/03bb80b6-4008-4303-8351-4fc39bf3a23a" /><img width="99" height="56" alt="17575076844026317135712058429977" src="https://github.com/user-attachments/assets/9de7f16e-4a1a-4eeb-9e53-2eeab8aa32a6" /><img width="103" height="57" 
+<img width="99" height="56" alt="17575076441997543281770696612481" src="https://github.com/user-attachments/assets/07f0971b-692a-41ba-ad47-65fa1937b385" /><img width="99" height="56" alt="17575076723835904084378366257231" src="https://github.com/user-attachments/assets/03bb80b6-4008-4303-8351-4fc39bf3a23a" /><img width="99" height="56" alt="17575076844026317135712058429977" src="https://github.com/user-attachments/assets/9de7f16e-4a1a-4eeb-9e53-2eeab8aa32a6" />
+
 when im done all of this is going in my @macpilled github bc this is goingt o be eloquentcountenance themed..which im working on Still
 
 
