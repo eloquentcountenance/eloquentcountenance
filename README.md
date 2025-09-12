@@ -27,4 +27,4 @@ when im done all of this is going in my @macpilled github bc this is goingt o be
 
           ..Sighs im Barely going to be joining gtcs anymore the people there r honestly so rude and disgusting dude im Not kidding or exaggerating im actually about to quit this game too holy shit
 
-o ya did i say c + h please do that. please. its strangely comforting and ii mostly prefer my pony being hidden if im skips : ii dont care what ur pony looks like just cuddle me plz!! if ur scared then im scared
+o ya did i say c + h please do that. please. in pt i REAALLY like being close 2 ppl or just being hidden behind another pony, its strangely comforting. ii mostly prefer my pony being hidden if im skips or if im just behind u : ii dont care what ur pony looks like just cuddle me plz!! if ur scared then im scared sorry i cant approach people for shit on here
