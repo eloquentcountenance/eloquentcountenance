@@ -1,1 +1,1 @@
-Oki will Actually force myself to get motivation to redo this whole thing -_-
+THIS GAME IS SO BORING!!!!!!!!! umm my Tiktok is technclock discord jackpotcrashcourse Ok
