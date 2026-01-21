@@ -5,4 +5,4 @@ the only reason u ever see me on this game r for my 2 friends i literally have n
 
 igenuinely could not finish this but this'll be on my profile for like a day Thanks
 
-<img width="1024" height="1416" alt="image" src="https://github.com/user-attachments/assets/d73c982e-48fd-4ae7-bb96-a480acf1d39d" />
+<img width="1214" height="1526" alt="image" src="https://github.com/user-attachments/assets/9214da35-042b-4934-b5d9-a4c7be4a9155" />
