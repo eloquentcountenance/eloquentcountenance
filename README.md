@@ -2,4 +2,4 @@ there're bums on here who think they're funny by posting other people's ponies a
 
 their user is himmak1367 PLZ report this account their whole profile basically profits off stealing ponies like hello wtf ?????????????? " free to use " um No ? ? https://www.pinterest.com/himmak1367/
 
-<img width="1182" height="1344" alt="image" src="https://github.com/user-attachments/assets/1ba024ad-6a25-4bf2-ae3f-06843c5857fe" />
+<img width="827" height="941" alt="image" src="https://github.com/user-attachments/assets/cb274e8d-8157-4755-83d8-4934cbcfda48" />
