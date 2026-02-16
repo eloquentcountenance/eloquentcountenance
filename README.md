@@ -2,4 +2,4 @@ hi some bum posted me on pinterest please report their account it'd really help 
 
 unfinished slop he looks so Chopped dud
 
-<img width="642" height="1062" alt="image" src="https://github.com/user-attachments/assets/da17cced-2819-4de8-bdaa-5c606acaf822" />
+<img width="924" height="1436" alt="image" src="https://github.com/user-attachments/assets/32578b50-c04d-417c-9472-a58876b9fcf3" />
