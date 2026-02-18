@@ -2,4 +2,4 @@ hi some bum posted me on pinterest please report their account it'd really help 
 
 unfinished slop he looks so stiff i fix tomoorrow 
 
-<img width="772" height="1118" alt="image" src="https://github.com/user-attachments/assets/f4ec6186-4e1c-4c59-8e7c-eb0569589f58" />
+<img width="598" height="994" alt="image" src="https://github.com/user-attachments/assets/bd9b4b15-1fc9-4429-a277-a705c82d9ba3" />
