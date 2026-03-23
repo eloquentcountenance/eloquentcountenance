@@ -2,4 +2,4 @@ ur weird for posting people's hard work on here um please report this person--if
 
 i forget that i have github but ey here r my links yyyy
 
-[straw](https://s01verbullet.straw.page) ‎ ‎  [ata](mushroomoasis.atabook.org) ‎ ‎  [palestine](https://arab.org/click-to-help/palestine/)
+[straw](https://s01verbullet.straw.page) ‎ ‎  [ata](mushroomoasis.atabook.com) ‎ ‎  [palestine](https://arab.org/click-to-help/palestine/)
