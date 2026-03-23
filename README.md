@@ -1,8 +1,7 @@
+  ‎ ‎ ‎ ‎ ![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?label=minions&color=1f212f)
+   
 ur weird for posting people's hard work on here um please report this person--if u do, thanks it means alot. ❤️ do not use any of my skins or upload please https://www.pinterest.com/himmak1367/
 
 i forget that i have github but ey here r my links yyyy
 
 [straw](https://s01verbullet.straw.page) ‎ ‎  [ata](https://mushroomoasis.atabook.org) ‎ ‎  [palestine](https://arab.org/click-to-help/palestine/)
-
-
-  ‎ ‎ ‎ ‎ ![Github Views](https://views.igorkowalczyk.dev/api/badge/YOUR-USERNAME?label=minions&color=1f212f)
