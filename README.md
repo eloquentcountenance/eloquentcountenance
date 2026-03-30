@@ -6,3 +6,5 @@ i forget that i have github but ey here r my links yyyy
 
 
 i am practically forcing myself to be on pony town or any social media at all, actually. my mental health has been at its worst even when im not on it; i feel like even bearing to surround myself with it will only make it worse lol i'll probably be on here like every blue moon Sorry u can talk to me on my ata or straw page, ur messages make me happy
+
+i plan on adding my own colored art to my readme But i need the motivation to color it -_-
