@@ -6,4 +6,4 @@ i forget that i have github but ey here r my links yyyy
 
 will be on pt once a blue moon😳
 
-Hi
+oh bruh whenthe artist of my commission reaches out to me i Am coming back to post ts 🥹
