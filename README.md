@@ -6,4 +6,7 @@ i forget that i have github but ey here r my links yyyy
 
 will be on pt once a blue moon😳
 
-oh bruh whenthe artist of my commission reaches out to me i Am coming back to post ts 🥹
+oh bruh whenthe artist of my commission reaches out to me i Am coming back to post ts 🥹 anyway here's candy apple kukii
+
+<img width="814" height="672" alt="image" src="https://github.com/user-attachments/assets/d7c14591-4a75-421f-b93a-72d845d6120b" />
+
