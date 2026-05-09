@@ -6,4 +6,4 @@ i forget that i have github but ey here r my links yyyy
 
 will be on pt once a blue moon😳 i literally just stand around at docks like a bum feel free 2 interact ifffuread my sp....
 
-AHHHHHHHHHHHHHHH
+cuddle freely...pls
