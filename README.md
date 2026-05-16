@@ -5,7 +5,11 @@
   
 [straw](https://s01verbullet.straw.page) ‎ ‎  [ata](https://mushroomoasis.atabook.org) ‎ ‎  [palestine](https://arab.org/click-to-help/palestine/)
 
-could you tell shallow river is my favorite queer song from the crane wives ? no...???? ok Sorry.
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31lrscuabtxv3c2y63kc7tevxfny&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+  </a>
+</p>
 
 <img width="800" height="164" alt="17789601800892518173089524304408" src="https://github.com/user-attachments/assets/4f7ba4c3-0c6f-463a-b7d9-524ec1896afe" />
 
