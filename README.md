@@ -5,7 +5,9 @@
   
 [straw](https://s01verbullet.straw.page) ‎ ‎  [ata](https://mushroomoasis.atabook.org) ‎ ‎  [palestine](https://arab.org/click-to-help/palestine/)
 
-can u tell shallow river is my favorite queer song from the crane wives? no....?? Ok.
+*kills test babies and fucks up so many timelines AND sealed elder faerie cookie to a tree* devsisters: ya he just needs true understanding (????)
+
+listen to the crooked & the cradle by the crane wives pls
 
 <img width="800" height="164" alt="17789601800892518173089524304408" src="https://github.com/user-attachments/assets/4f7ba4c3-0c6f-463a-b7d9-524ec1896afe" />
 
