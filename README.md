@@ -5,7 +5,7 @@
   
 [straw](https://s01verbullet.straw.page) ‎ ‎  [ata](https://mushroomoasis.atabook.org) ‎ ‎  [palestine](https://arab.org/click-to-help/palestine/)
 
-im so geeked i cant contain myself thank u so fawkingmuch @sylvekn🥹
+im so geeked i cant contain myself thank u so fawkingmuch @sylvekn🥹 (its not even finished yet but i lava it so much)
 
 
 <img width="720" height="797" alt="17802443694103774130421557179411" src="https://github.com/user-attachments/assets/2a1cc751-10ef-4370-9fbf-aed37eda9135" />
