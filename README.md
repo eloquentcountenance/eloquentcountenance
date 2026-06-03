@@ -1,4 +1,6 @@
 <div align="center">
+  
+![](https://komarev.com/ghpvc/?username=eloquentcountenance&color=ba3419&label=eridians) 
 
 <img width="30%" height="1920" alt="image" src="https://files.catbox.moe/sjw8e0.png" />
 
