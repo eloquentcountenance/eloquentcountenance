@@ -6,4 +6,4 @@
 
 [straw](https://s01verbullet.straw.page) ‎ ‎  [ata](https://mushroomoasis.atabook.org) ‎ ‎  [palestine](https://arab.org/click-to-help/palestine/)
 
-[raye's ata !!! (my beloved oc!! ART BY @SYLVEKN TIKTOK THANKUUU)](https://raye.atabook.org)
+[raye's ata !!! (my beloved oc!! COMMISSIONED ART BY @SYLVEKN TIKTOK THANKUUU)](https://raye.atabook.org)
