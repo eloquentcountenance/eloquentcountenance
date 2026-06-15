@@ -1,8 +1,8 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=eloquentcountenance&color=ba3419&label=eridians) 
+![](https://komarev.com/ghpvc/?username=eloquentcountenance&color=0023ab&label=ᶻ𝗓𐰁) 
 
-<img width="30%" height="30%" alt="image" src="https://files.catbox.moe/sjw8e0.png" />
+<img width="20%" height="10%" alt="image" src="https://files.catbox.moe/iprag3.webp" />
 
 [straw](https://s01verbullet.straw.page) ‎ ‎  [ata](https://mushroomoasis.atabook.org) ‎ ‎  [palestine](https://arab.org/click-to-help/palestine/)
 
