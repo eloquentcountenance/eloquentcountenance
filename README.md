@@ -4,6 +4,5 @@
 
 [straw](https://s01verbullet.straw.page) ‎ ‎  [ata](https://mushroomoasis.atabook.org) ‎ ‎  [palestine](https://arab.org/click-to-help/palestine/)
 
-ive beenm doing nothing like a lazy bum idk what to do for my birthday :/
-
+i want the bok-su plushie...but i also want a vr headset...but i also want a new phone...but i alsowant yeah its ggs
 
