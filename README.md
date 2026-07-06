@@ -4,4 +4,4 @@
 
 [straw](https://s01verbullet.straw.page) ‎ ‎  [ata](https://mushroomoasis.atabook.org) ‎ ‎  [palestine](https://arab.org/click-to-help/palestine/)
 
-only on if one of my friends r on even then i mostly at party island 😳
+wait its wraps They got me
