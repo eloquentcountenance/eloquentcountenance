@@ -4,4 +4,4 @@
 
 [straw](https://s01verbullet.straw.page) ‎ ‎  [ata](https://mushroomoasis.atabook.org) ‎ ‎  [palestine](https://arab.org/click-to-help/palestine/)
 
-wait its wraps They got me
+???? why do i still have diamon d supporter like i guess
